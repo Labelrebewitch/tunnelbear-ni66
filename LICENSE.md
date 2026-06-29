@@ -1,4 +1,4 @@
-
+Enhance your TunnelBear experience with premium TunnelBear Client | WireGuard-support + ad-blocker, the #1 client. Includes WireGuard-support and ad-blocker for a safer and more
 
 
 
